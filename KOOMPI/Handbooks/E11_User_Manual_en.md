@@ -1,0 +1,1 @@
+ ![alt text for screen readers](Images/E11_handbook1.png "Text to show on mouseover").
