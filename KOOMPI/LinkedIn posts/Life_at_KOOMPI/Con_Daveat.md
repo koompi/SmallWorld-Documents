@@ -1,4 +1,5 @@
 ### Con Daveat 
+
 Most of us are very attached to our electronics. This is usually the case with computers and mobile phones that have been with us through thick and thin. This image may be ironic considering it looks anything but “attached”. However, it has a beautiful story behind it. 
 
 Every morning, Selendra’s mobile app developer Daveat arrives at his office and sets up his laptop before doing anything else, which is usually making himself a cup of coffee or tea and watering the plants around 11 am after his online class.  

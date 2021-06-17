@@ -1,8 +1,5 @@
  ### Aing Sereyvathana
 
-![E11 Handbook](../Images/lifeatkoompi1.png)
-
-
 Who designs KOOMPI OS’s Desktop Environment? 
 
 You must have seen her before in our Women’s Rights video earlier this year. Sereyvathana, more known by us as Cheng, is the only female Linux developer at KOOMPI. 

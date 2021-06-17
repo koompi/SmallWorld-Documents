@@ -1,4 +1,5 @@
  ### Chum Mollika
+ 
 As our communication and documentation officer, Mollika covers most of the writing work at KOOMPI. Whether they are presentation slides, webpage content, PR, or blog articles, her role is to make sure the documents are cleaned up and well-written before being pushed out to the public. Despite some challenges, what Mollika enjoys most about her work is how she is able to share KOOMPI’s mission and stories to the public in a format she loves the most: literature. 
 
 Depending on the task, Mollika rotates between working from her home office and going to KOOMPI HQ. However, unless necessary, she almost always prefers to be in isolation during writing, especially when it comes to long-term writing projects, such as the KOOMPI OS Playbook. There are some days where not much writing can get done and they can be frustrating. 
